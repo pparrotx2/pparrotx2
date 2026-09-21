@@ -4,7 +4,7 @@
 .
 　　　 hi im the biggest bird
 　　　　　　c+h freely if...
-     . 　　　 usmp , mcyt , bmf , 
+     . 　　　　　 usmp , mcyt , bmf , 
      (^_^)
 
 ------
